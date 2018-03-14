@@ -1,1 +1,1 @@
-![img](https://ci.appveyor.com/api/projects/status/gmu6b3ltc80hr3k9?svg=true)
+[![nadeko0](https://pp.userapi.com/c840339/v840339402/67aa6/FcHsw7_BJHg.jpg)](https://discord.gg/ZtMk2D4)
